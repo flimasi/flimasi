@@ -1,4 +1,4 @@
-### Simplicity is the ultimate sophistication 👋
+### Simplicity is the ultimate sophistication, I'M SHARED MY IDEAS AND SMALL CODES 👋
 
 https://skyline.github.com/flimasi/2021
 
