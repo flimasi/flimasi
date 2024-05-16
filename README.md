@@ -1,15 +1,8 @@
 ### Simplicity is the ultimate sophistication, I'M SHARED MY IDEAS AND SMALL CODES 👋
 
-https://skyline.github.com/flimasi/2023
-
 ![image](https://github.com/flimasi/flimasi/assets/19837925/37e6c37b-2d84-44f1-9988-410f9385d9da)
 
-
-https://skyline.github.com/flimasi/2022
-
 ![image](https://user-images.githubusercontent.com/19837925/211410281-1f0c1162-ab56-4f10-9f67-c26d9d9d4059.png)
-
-https://skyline.github.com/flimasi/2021
 
 ![image](https://user-images.githubusercontent.com/19837925/199236508-2462ab34-6a70-4988-87f0-2807e0c04f45.png)
 
