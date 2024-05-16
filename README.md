@@ -2,7 +2,8 @@
 
 https://skyline.github.com/flimasi/2023
 
-![image](https://github.com/flimasi/flimasi/assets/19837925/785de6b9-49de-437f-8f2d-c71600383b01)
+![image](https://github.com/flimasi/flimasi/assets/19837925/37e6c37b-2d84-44f1-9988-410f9385d9da)
+
 
 https://skyline.github.com/flimasi/2022
 
