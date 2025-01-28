@@ -1,5 +1,7 @@
 ### Simplicity is the ultimate sophistication, I'M SHARED MY IDEAS AND SMALL CODES 👋
 
+![image](https://github.com/user-attachments/assets/eb9c42a4-7f4e-45a2-a426-e7d82da1cecd)
+
 ![image](https://github.com/flimasi/flimasi/assets/19837925/37e6c37b-2d84-44f1-9988-410f9385d9da)
 
 ![image](https://user-images.githubusercontent.com/19837925/211410281-1f0c1162-ab56-4f10-9f67-c26d9d9d4059.png)
